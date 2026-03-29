@@ -1,1 +1,1 @@
-I study Quantitative Methodolody
+I study Quantitative Methodology
